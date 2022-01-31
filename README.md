@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @JeffRoseNL
+- 👀 I’m interested in robotics
+- 🌱 I’m currently learning everything i can
+- 📫 How to reach me ...
